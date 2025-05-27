@@ -15,7 +15,7 @@ I'm a curious mind diving deep into how the **tech world truly works** — from 
 
 [![LinkedIn](https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/jagath-vishwa-k-2a2b1722a/)  
 [![Instagram](https://img.shields.io/badge/-Instagram-%23E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/_.jagath_vishwa._/)
-
+📧 **Email:** [jagathvishwa08@gmail.com](mailto:jagathvishwa08@gmail.com)
 
 > 💡 *If you’re building something awesome, I’d love to hear from you!*
 
